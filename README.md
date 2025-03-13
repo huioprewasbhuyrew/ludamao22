@@ -9,3 +9,4 @@ qiang shiji an lin bie
 lumao
 开kai pi qi
 dou po chang qiong
+hao zuo shi cha
